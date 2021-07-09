@@ -1,4 +1,6 @@
 # HI
 ## this is a new beginning
 # *lzh is a pig* 🐷
-![lzh](/Users/wuruixiang/Pictures/Saved Pictures/140FA362-8A59-45E4-B0BA-2C20F12AC7EA_1_105_c.jpg)
+![11](https://user-images.githubusercontent.com/27147728/125056108-7b3cb300-e0da-11eb-9da1-a0b9325c5ad3.png)
+
+
